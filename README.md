@@ -12,8 +12,8 @@
 
 📫 How to reach me:
 - **Email**: [prathameshp2401@gmail.com]
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/prathamesh-patil-66175924b/)
-- **Twitter**: [@yourtwitterhandle](https://x.com/Kalyantalks)
+- **LinkedIn**: [Prathamesh on Linkedin](https://www.linkedin.com/in/prathamesh-patil-66175924b/)
+- **Twitter**: [Me on twitter](https://x.com/Kalyantalks)
 
 😄 Pronouns: He/Him
 
